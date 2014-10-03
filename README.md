@@ -1,0 +1,1 @@
+# NINJAM-JP general
